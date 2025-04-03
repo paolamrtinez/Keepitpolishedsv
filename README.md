@@ -6,6 +6,7 @@ Bienvenido a Keep it Polished SV, tu tienda en línea de uñas press-on en El Sa
 ## Acceso a nuestra tienda
 Puedes acceder a nuestra tienda a través de los siguientes medios:
 **Instagram:** Visita nuestro perfil en https://www.instagram.com/keepitpolishedsv/ 
+**Tik Tok** Visita nuestro perfil en https://www.tiktok.com/@keepitpolishedsv?_t=ZM-8vEcYV4PvGg&_r=1
 **WhatsApp:** Contáctanos directamente al 72181434
 ## ¿Cómo comprar?
 **Explora nuestro catálogo:** Visita nuestro perfil de Instagram para ver los diseños disponibles https://www.instagram.com/stories/highlights/17846761146096704/ 
