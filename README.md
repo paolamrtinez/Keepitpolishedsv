@@ -12,4 +12,5 @@ Puedes acceder a nuestra tienda a través de los siguientes medios:
 **Elige tus diseños favoritos:** Selecciona los diseños que más te gusten y envíanos capturas de pantalla o descripciones. 
 **Contáctanos:** Envíanos un mensaje directo por Instagram o WhatsApp con tu pedido. **Realiza tu pago:** Aceptamos pagos a través de transferencia bancaria Cuscatlán, Agrícola y Niu, también en efectivo.
 **Recibe tus uñas:** Realizamos envíos a todo El Salvador. 
-# Keepitpolishedsv
+*Diseños únicos* para tus uñas.
+**¡No te pierdas nuestras promociones!**
